@@ -1,2 +1,2 @@
 # License
-[CMTools] Checker v1.7 Lisans Sistemi BRO
+MaxCare https://discord.gg/sVdUfZVrjF
